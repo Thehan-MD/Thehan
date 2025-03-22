@@ -1,7 +1,7 @@
-```NETHU-MD WHATSAPP USER BOT CREATED BY MR NETHMIKA OFC```
+```THEHAN-MULTI DEVICE WHATSAPP BOT```
 
 <div align="center">
-    <b>NETHU-MD USER BOT</b>
+    <b>THEHAN-MD BY THEHAN VINDULA</b>
 
 
 <div align="left">
