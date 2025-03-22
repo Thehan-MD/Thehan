@@ -10,14 +10,14 @@
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
    <p align="center">
-<a href="https://github.com/Nethmikakaushalyaherath">
+<a href="https://github.com/Thehan-MD">
     <img src="https://media-hosting.imagekit.io//cec70ebc2f2e4dd9/20250322_122330.jpg?Expires=1837234726&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=c57NVQ~B2nltdDCA2Z535CN7M19b25zqo1PokhIioISkIEL22CXRnLaDtjSbD5R-V5QFGyd4O1o7MwCWbgp2W5dRHOrGx1dI6MrtLNWuda-UngRPWYWw~rPJBGL8DbhyDZVYGIzQ2Yv43cLBdQyJv282mRfUWvSuzOAmwG4tFdUydEWO4gFxsjL2Ydh8M2zqNS6FuxMFDTERlPc2HAGzWTTmGPx7RVf6Ymbay31CHkH9xG8kcvxz~Vy2VIItY8NzdiZ2Q3FtC5qwa4kxNFkDpOg1lvKRrBn1lFLE6grxfEJXYfjUhZok5eXjOgj-cPg~iVnTvXA3CPVkvfzkOz~c9Q__"="700px">
   </a>
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
-`NETHU-MD` whatsapp bot is,
+`THEHAN-MD` BEST MULTI DEVICE WHATSAPP BOT,
 
-      NETHU-MD යනු ඔබට පහසුවෙන් හැසිරවිය හැකි Bot වරයෙකි.
+      BEST WHATSAPP BOT IN THE WORLD
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
